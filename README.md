@@ -1,1 +1,2 @@
 # Number_game
+CHATGPT RANKNING 8/10
